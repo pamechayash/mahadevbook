@@ -1,3 +1,0 @@
-# mahadevbook
-# mahadevbook
-# mahadevbook
